@@ -2,4 +2,4 @@
 
 Aparently, sume one cant type.
 
-Pleez fix all the typoos.
+Pleez fix all the typos.
